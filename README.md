@@ -1,0 +1,2 @@
+- well you know what i said ?
+- probably something about your own brilliance.
